@@ -1,3 +1,3 @@
-## Aprendendo no Github! 👋
+## Novo Github! 👋
 
 ![](https://media.tenor.com/r0R0N3dI3kIAAAAM/dancing-cat-dance.gif)
